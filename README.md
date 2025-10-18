@@ -16,3 +16,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+Resume:
+Education:
+2022-2025 Cedar Falls High School
+2025-Present Northeastern University
